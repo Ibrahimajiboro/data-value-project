@@ -13,3 +13,6 @@ i would select the area i want to focus on in the strategic objectives tomorrow
 14 - 12 -2023
 i discussed the concept of (Uncovering the disparity between the pre graduate and the post graduate degress amongst the national and international students .) with the team
 we agrred to look into it and make better plans on its execution
+
+15 - 12 - 2020
+if i could i would have continued but the plan was to harmonise the balanced score card with the strategic objectives of the company. this will be done tomorrow.
