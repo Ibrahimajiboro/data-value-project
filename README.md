@@ -16,3 +16,7 @@ we agrred to look into it and make better plans on its execution
 
 15 - 12 - 2020
 if i could i would have continued but the plan was to harmonise the balanced score card with the strategic objectives of the company. this will be done tomorrow.
+
+25 - 12 - 2023 
+report has progressed from balanace score card to objective 
+from objectives to wireframe 
