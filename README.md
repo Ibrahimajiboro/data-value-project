@@ -20,3 +20,7 @@ if i could i would have continued but the plan was to harmonise the balanced sco
 25 - 12 - 2023 
 report has progressed from balanace score card to objective 
 from objectives to wireframe 
+
+
+31 - 12 - 2023 
+haven't done anything in the past two days but wish to do some tosay
