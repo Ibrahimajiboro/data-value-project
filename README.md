@@ -23,4 +23,8 @@ from objectives to wireframe
 
 
 31 - 12 - 2023 
-haven't done anything in the past two days but wish to do some tosay
+---------------------------
+- haven't done anything in the past two days but wish to do some tosay
+- create real progress framework and list outstandings 
+- create accessment checklist 
+- 
