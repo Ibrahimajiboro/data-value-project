@@ -28,3 +28,10 @@ from objectives to wireframe
 - create real progress framework and list outstandings 
 - create accessment checklist 
 - 
+
+2 - 1 - 2024 
+---------------------------
+- still doing the software project for now
+- will soon resume data value
+- i will itemise the outsatnding tommorow
+  
